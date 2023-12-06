@@ -1,4 +1,4 @@
-<a target="_blank" href="https://t.me/bdixiptvm3u8/">Join Telegram</a>
+<a target="_blank" href="https://t.me/softbdteam/">Join Telegram</a>
 
 
 # BDIX-IPTV
